@@ -10,4 +10,4 @@
 - 😄 Pronouns: he/him/his/programmer/alien
 - ⚡ Fun fact: Elon Musk is my role model.
 
-If you got more time, you can wander around at my personal space in the internet [https://erbipin.com](erbipin.com).
+If you got more time, you can wander around at my personal space in the internet [erbipin.com](https://erbipin.com).
